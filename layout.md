@@ -3,7 +3,6 @@ textbfOutline_Exampl.html
 figures/image6
 textbfOutline_Why_do.html
 c5pbcujb0ug.html
-180dahvj8a8.html
 leebbmoqv18.html
 b50i9pkrp8.html
 vap15n1o2tg.html
