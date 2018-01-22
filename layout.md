@@ -2,7 +2,6 @@ subsectionOutlinelab.html
 textbfOutline_Exampl.html
 figures/image6
 textbfOutline_Why_do.html
-up1vgo5rsjo.html
 c5pbcujb0ug.html
 180dahvj8a8.html
 leebbmoqv18.html
@@ -13,7 +12,6 @@ jlbgusibr5o.html
 5luuga509oo.html
 4sgr7kk0cg.html
 ce6klnukqjg.html
-
 18t3s8k7tbg.html
 4h6s1tus4c.html
 textbfOutline_Push_n.html
