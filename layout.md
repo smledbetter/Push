@@ -15,7 +15,6 @@ figures/image7
 If_you_need_a.html
 textbfRule_1_Acknowl.html
 dg5pfg2fvlg.html
-lr1bvlbuako.html
 sm66bfvj2ko.html
 rhd432nnklg.html
 textbfRule_2_Offer_e.html
