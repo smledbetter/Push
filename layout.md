@@ -1,5 +1,4 @@
 subsectionOutlinelab.html
-textbfOutline_Exampl.html
 figures/image6
 textbfOutline_Why_do.html
 c5pbcujb0ug.html
