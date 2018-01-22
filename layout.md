@@ -7,7 +7,6 @@ jrbkl6d1r.html
 jlbgusibr5o.html
 emphMost_push_notifi.html
 longtable_ccc_toprule_textbfTh.html
-textbfOutline_Effect.html
 emphyears__You_can_t.html
 textbfOutline_People.html
 textbfOutline_How_to.html
