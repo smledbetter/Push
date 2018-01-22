@@ -4,7 +4,6 @@ figures/image6
 textbfOutline_Why_do.html
 c5pbcujb0ug.html
 leebbmoqv18.html
-b50i9pkrp8.html
 vap15n1o2tg.html
 aq99gos15do.html
 jlbgusibr5o.html
